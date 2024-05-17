@@ -1,1 +1,2 @@
 # Jennyfer-
+Minha principal área de interesse é pela química orgânica, onde exploro na complexidade das moléculas, buscando criar novos materiais, medicamentos e soluções para os desafios sociais. Meu objetivo é impulsionar o avanço da ciência química, seja através de pesquisa em laboratório, desenvolvimento de tecnologias inovadoras ou educação sobre a relevância da química em nossas vidas cotidianas.
